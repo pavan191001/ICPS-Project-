@@ -27,3 +27,8 @@ components for hardware build of prototype
 for more info check attachments 
 
 thanking 
+
+Project Report or Project PPT
+https://drive.google.com/drive/folders/1N6uhKiV0w0_pg5T6UyuCdMIRjRdGM0hl?usp=sharing
+
+
